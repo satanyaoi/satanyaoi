@@ -1,1 +1,2 @@
-https://media.discordapp.net/attachments/1207943076648321025/1413403074797506670/tumblr_99601d096b110d2ad1535f069fcd7a16_aa9b6693_540.gif?ex=68bbcdb0&is=68ba7c30&hm=ea184af1d6447323ce5b13af5e9bf33fed8ff10bd69c00228eac1b34321bbb65&=&width=1080&height=816
+![Uploading tumblr_99601d096b110d2ad1535f069fcd7a16_aa9b6693_540.gif…]()
+
